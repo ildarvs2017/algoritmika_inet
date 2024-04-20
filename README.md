@@ -1,1 +1,1 @@
-# algoritmika_inet
+# algoritmika_inetкеукукукукукукуукуку
